@@ -15,7 +15,7 @@
 12. Food
 13. Water
 
-14. first aid items such as:
+14. First aid items such as:
     * Band-Aids
     * antiseptic
     * dressings.
@@ -31,7 +31,7 @@ Also important
 * hat
 * guidebook
 * preferred brands of toiletries and cosmetics.
-* doctor-prescribed broad spectrum antibiotic
+* doctor-prescribed broad spectrum of antibiotic
 
 14. First Aid kits
 15. Juice 
@@ -39,11 +39,12 @@ Also important
 17. Open shoes
 18. Bathing materials
 19. Massage oil 
-20. Massage table
-21. Massage machines
-22. Pairs of sneakers
-23. Flash lights
-24. Trash bags    
+20. Sleeping costume
+21. Massage table
+22. Massage machines
+23. Pairs of sneakers
+24. Flash lights
+25. Trash bags    
 
 
 **Some of the personal things you may need.**    
@@ -51,11 +52,5 @@ Also important
     * Hair comb
     * Body oils
     * Perfumes
-
-    *
-    
-    ## Mega feature update
-
+    * Hair clips
     * 
-    
-    this is a sample edit
