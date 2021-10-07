@@ -32,4 +32,6 @@
     * Hair comb
     * Body oils
     * Perfumes
-    * 
+    *
+    
+    ## Mega feature update
