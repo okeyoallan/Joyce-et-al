@@ -2,7 +2,7 @@
 Joyce, Allan, JB Mugi    
 
 
-**You will need;**    
+**You will need**    
 
 1. Printed T-shirts with the soft print *SAY NO TO DEPRESSION*
 2. Hiking boots
