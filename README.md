@@ -5,7 +5,7 @@ Joyce, Allan, JB Mugi
 ## Objectives    
 To scale the heights of Mt Kenya to raise awareness on mental health crisis as result of the COVID 19 pandemic.    
 
-**Join us on this awareness campaign**    
+**Together let'join ands to;**
  
  > *A campaign towards a depression-free world.*    
  
