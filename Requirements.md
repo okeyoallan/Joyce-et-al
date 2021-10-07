@@ -14,6 +14,7 @@
 11. Blankets
 12. Food
 13. Water
+
 14. first aid items such as:
     * Band-Aids
     * antiseptic
@@ -31,3 +32,23 @@ Also important
 * guidebook
 * preferred brands of toiletries and cosmetics.
 * doctor-prescribed broad spectrum antibiotic
+
+14. First Aid kits
+15. Juice 
+16. Snacks
+17. Open shoes
+18. Bathing materials
+19. Massage oil 
+20. Massage table
+21. Massage machines
+22. Pairs of sneakers
+23. Flash lights
+24. Trash bags    
+
+
+**Some of the personal things you may need.**    
+
+    * Hair comb
+    * Body oils
+    * Perfumes
+    * 
