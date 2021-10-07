@@ -15,4 +15,21 @@
 12. Food
 13. Water
 14. First Aid kits
-15. 
+15. Juice 
+16. Snacks
+17. Open shoes
+18. Bathing materials
+19. Massage oil 
+20. Massage table
+21. Massage machines
+22. Pairs of sneakers
+23. Flash lights
+24. Trash bags    
+
+
+**Some of the personal things you may need.**    
+
+    * Hair comb
+    * Body oils
+    * Perfumes
+    * 
