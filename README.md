@@ -1,5 +1,6 @@
 # Joyce-et-al
-Joyce, Allan, JB Mugi
+
+Joyce, Allan, JB Mugi    
 
 # A hike to the peak of Mount kenya
 ## Objectives    
@@ -9,5 +10,4 @@ To scale the heights of Mt Kenya to raise awareness on mental health crisis as r
  
  > *A campaign towards a depression-free world.*    
  
- 
- 
+
