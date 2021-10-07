@@ -14,5 +14,20 @@
 11. Blankets
 12. Food
 13. Water
-14. First Aid kits
-15. 
+14. first aid items such as:
+    * Band-Aids
+    * antiseptic
+    * dressings.
+16. Medical kit that includes any basic remedies such as:
+    * antacids
+    * painkillers
+    * anti-histamines
+    * cold remedies
+
+Also important
+* camera
+* binoculars
+* hat
+* guidebook
+* preferred brands of toiletries and cosmetics.
+* doctor-prescribed broad spectrum antibiotic
