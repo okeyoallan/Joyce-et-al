@@ -1,3 +1,17 @@
+
+ Joyce-et-al
+
+Joyce, Allan, JB Mugi    
+
+# A hike to the peak of Mount kenya
+## Objectives    
+To scale the heights of Mt Kenya to raise awareness on mental health crisis as result of the COVID 19 pandemic.    
+
+**Together let'join ands to;**
+ 
+ > *A campaign towards a depression-free world.*    
+ 
+ 
 # LOGISTICS AND COST FOR HIKING MOUNT KENYA
 
 ## LOGISTICS
@@ -35,5 +49,9 @@ Descent to met station to the narumoru gate and then back to Nairobi
 
 ## TOTAL COST Ksh 48,000
 
+
+
+# 
+ 
 
 
