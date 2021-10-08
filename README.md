@@ -18,7 +18,7 @@ Joyce, Allan, JB Mugi
 
 ## When?
 ##### Friday 15th April 2022 - Monday 18th April 2022
-Easter Holiday, starting from good Friday to Easter Monday
+Easter Holiday, starting from Good Friday to Easter Monday
 
 ## Why?
 
