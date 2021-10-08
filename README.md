@@ -34,6 +34,12 @@ It is our responsibility,therefore, as scientists that are aware of this fact, t
 Young Bioinformaticians looking to make an impact in our society through our talents in Science and Technology
 
 
+### [Logistics](https://github.com/okeyoallan/Joyce-et-al/blob/main/Logistics.md)
+
+### [Requirements](https://github.com/okeyoallan/Joyce-et-al/blob/main/Requirements.md)
+
+### [Preparations](url)
+
  
 
  
