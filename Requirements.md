@@ -1,5 +1,6 @@
-Most of the things we will need at during the trip will be
-provided for by the booking team.
+*Most of the things we will need during the trip will be
+provided for by the booking team.*
+
 **IN ADDITION WE WILL REQUIRE THE FOLLOWING ITEMS**    
 
 
