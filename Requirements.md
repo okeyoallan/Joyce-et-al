@@ -1,7 +1,29 @@
 
-**You will need**    
+# **Personal ammenities and essentials**  
 
-1. Printed T-shirts with the soft print **SAY NO TO DEPRESSION**
+
+* Weather-appropriate clothing (think moisture-wicking and layers)
+* Hiking gear
+     * hiking boots
+     * hiking backpack
+     * helmet
+     * gloves
+     * Flash lights
+* Preferred toiletries and grooming items
+* Pair of sneakers
+* Open shoes
+
+## **Ammenities to purchase as a group**
+
+* First Aid kits
+* Snacks
+* Massage oil 
+* Massage table
+* Massage machines 
+* Trash bags    
+
+
+1. T-shirts printed with the following **SAY NO TO DEPRESSION**
 2. Hiking boots
 3. Warm clothings
 4. Track suits
@@ -25,13 +47,13 @@
     * anti-histamines
     * cold remedies
 
-Also important
-* camera
-* binoculars
-* hat
-* guidebook
-* preferred brands of toiletries and cosmetics.
-* doctor-prescribed broad spectrum of antibiotic
+    **Also important**
+    * camera
+    * binoculars
+    * hats
+    * guidebook
+    * preferred brands of toiletries and cosmetics.
+    * doctor-prescribed broad spectrum of antibiotic
 
 14. First Aid kits
 15. Juice 
@@ -44,10 +66,12 @@ Also important
 22. Massage machines
 23. Pairs of sneakers
 24. Flash lights
-25. Trash bags    
+25. Trash bags
 
 
-**Some of the personal things you may need.**    
+
+
+**Some of the personal things you may as well need.**    
 
     * Hair comb
     * Body oils
