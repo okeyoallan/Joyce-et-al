@@ -34,7 +34,7 @@ Mackinders camp to Lenana peak  and descent to the camp
 ###### DAY 4 
 Descent to met station to the narumoru gate and then back to Nairobi
 
-## TOTAL COST Ksh 48,000
+## TOTAL COST Ksh 48,000 per person
 
 
 
