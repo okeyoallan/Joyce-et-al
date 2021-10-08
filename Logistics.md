@@ -22,10 +22,10 @@ We will be booking with triumph travel Kenya. TThis package includes transport t
 
 ### OVERVIEW OF THE HIKE
 
-#### DAY 1
+###### DAY 1
 Travelling from Nairobi to Narumoru gate 3-4hrs, 10km through the forest and 400km ascent to the meterological station where will spend the night
 
-##### DAY 2
+###### DAY 2
 From met station to mackinders camp this will take 5-6hrs 10km 1200m ascent
 
 ###### DAY 3  
