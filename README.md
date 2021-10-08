@@ -9,14 +9,14 @@ Joyce, Allan, JB Mugi
 * Build Mental Resilience.
 * Team Building
 
-**Together let's join hands to;**
+**Together let's join hands to:**
  
- > *A campaign towards a depression-free world.*
+ > * Campaign towards a Mentally Healthy world.*
 
 ## Where?
 #### Mt. Kenya National Park
 
-![A photo of people hiking](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS5Pd34ChpilNpZpRCyaqY0Dw4HIWkTsPXWxw&usqp=CAU)
+![A photo of people hiking Mt. Kenya](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS5Pd34ChpilNpZpRCyaqY0Dw4HIWkTsPXWxw&usqp=CAU)
 
 ## When?
 ##### Friday 15th April 2022 - Monday 18th April 2022
