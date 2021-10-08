@@ -32,7 +32,7 @@ From met station to mackinders camp this will take 5-6hrs 10km 1200m ascent
 Mackinders camp to Lenana peak  and descent to the camp   8-11hrs 11km 785m ascent
 
 ###### DAY 4 
-Descent to met station to the narumoru gate and then back to Nairobi
+Descent to met station, to the narumoru gate and then back to Nairobi
 
 ## TOTAL COST Ksh 48,000 per person
 
