@@ -1,4 +1,5 @@
-# Joyce-et-al
+
+ Joyce-et-al
 
 Joyce, Allan, JB Mugi    
 
@@ -6,8 +7,11 @@ Joyce, Allan, JB Mugi
 ## Objectives    
 To scale the heights of Mt Kenya to raise awareness on mental health crisis as result of the COVID 19 pandemic.    
 
-**Together let'join ands to;**
+**Together let's join hands to;**
  
  > *A campaign towards a depression-free world.*    
  
+
+ 
+
 
