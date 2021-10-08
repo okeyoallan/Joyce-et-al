@@ -13,7 +13,7 @@ The trip will last 4 days
 
 
 ### ROUTE OF CHOICE
-We will use the narumoru route as indicated in our package of choice from triumph trave kenya
+We will use the narumoru route as indicated in our package of choice from triumph travel kenya
 
 [TRIUMPH TRAVEL KENYA](https://www.safaribookings.com/day/t15108)
 
@@ -29,7 +29,7 @@ Travelling from Nairobi to Narumoru gate 3-4hrs, 10km through the forest and 400
 From met station to mackinders camp this will take 5-6hrs 10km 1200m ascent
 
 ###### DAY 3  
-Mackinders camp to Lenana peak  and descent to the camp   
+Mackinders camp to Lenana peak  and descent to the camp   8-11hrs 11km 785m ascent
 
 ###### DAY 4 
 Descent to met station to the narumoru gate and then back to Nairobi
