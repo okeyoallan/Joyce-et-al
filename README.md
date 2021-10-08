@@ -16,6 +16,8 @@ Joyce, Allan, JB Mugi
 ## Where?
 #### Mt. Kenya National Park
 
+![A photo of people hiking](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcS5Pd34ChpilNpZpRCyaqY0Dw4HIWkTsPXWxw&usqp=CAU)
+
 ## When?
 ##### Friday 15th April 2022 - Monday 18th April 2022
 Easter Holiday, starting from Good Friday to Easter Monday
@@ -38,7 +40,7 @@ Young Bioinformaticians looking to make an impact in our society through our tal
 
 ### [Requirements](https://github.com/okeyoallan/Joyce-et-al/blob/main/Requirements.md)
 
-### [Preparations](url)
+### [Preparations](https://github.com/okeyoallan/Joyce-et-al/blob/main/Preparations.md)
 
  
 
