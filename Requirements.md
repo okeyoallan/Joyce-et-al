@@ -6,7 +6,6 @@ provided for by [SAFARIBOOKINGS](https://www.safaribookings.com/day/t15108).*
 
 # **Personal ammenities and essentials**  
 
-url
 * Weather-appropriate clothing (think moisture-wicking and layers)
 * Hiking gear
      * hiking boots
