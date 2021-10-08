@@ -16,7 +16,7 @@ Scale the heights of Mt Kenya and raise awareness on mental health crisis as res
 
 ## When?
 ##### Friday 15th April 2022 - Monday 18th April 2022
-Easter Holiday, starting from good Friday to Easter Monday.
+Easter Holiday, starting from Good Friday to Easter Monday.
  
 
  
