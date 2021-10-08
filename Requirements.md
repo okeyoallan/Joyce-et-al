@@ -1,12 +1,12 @@
 *Most of the things we will need during the trip will be
-provided for by the booking team.*
+provided for by [SAFARIBOOKINGS](https://www.safaribookings.com/day/t15108).*
 
 **IN ADDITION WE WILL REQUIRE THE FOLLOWING ITEMS**    
 
 
 # **Personal ammenities and essentials**  
 
-
+url
 * Weather-appropriate clothing (think moisture-wicking and layers)
 * Hiking gear
      * hiking boots
