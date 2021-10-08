@@ -29,9 +29,9 @@ Travelling from Nairobi to Narumoru gate 3-4hrs, 10km through the forest and 400
 From met station to mackinders camp this will take 5-6hrs 10km 1200m ascent
 
 ###### DAY 3  
-Mackinders camp to Lenana peak  and descent to the camp
+Mackinders camp to Lenana peak  and descent to the camp   
 
-####### DAY 4 
+###### DAY 4 
 Descend to meet station to the narumoru gate and then back to Nairobi
 
 ## TOTAL COST Ksh 48,000
